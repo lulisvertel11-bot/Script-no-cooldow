@@ -1,0 +1,2 @@
+# Script-no-cooldow
+XD
